@@ -1,0 +1,2 @@
+# strategie
+Prev - strategie
